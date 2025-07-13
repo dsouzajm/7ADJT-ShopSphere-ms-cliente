@@ -1,0 +1,1 @@
+# 7ADJT-ShopSphere-ms-cliente
